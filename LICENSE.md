@@ -1,4 +1,4 @@
-#  
+#  sol's rng custom Scripts is the best sol's rng Script, featuring silent aim and private server access. Safe and powerful for all your needs.
 
 
 
